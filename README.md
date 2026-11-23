@@ -1,0 +1,2 @@
+# symmetrical-tribble
+mikroskop_pewarnaanbakteri_18
